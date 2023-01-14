@@ -1,0 +1,2 @@
+# Dalga Efekti
+ Dalga Efekti
